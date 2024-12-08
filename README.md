@@ -1,1 +1,1 @@
-TELL TRADUCTOR ERICK LUIS LUIS
+TELL (Traductor Erick Luis Luis)
